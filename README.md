@@ -1,5 +1,8 @@
 ## References
 
+Hello everyone who are visting on my git hiub account and thank you so much 
+please go through the link and se it properly 
+IF ANY ISSUE PLEASE TELL ME 
 1. https://steemit.com/shadowbrokers/@theshadowbrokers/lost-in-translation
 2. https://yadi.sk/d/NJqzpqo_3GxZA4 (Password = Reeeeeeeeeeeeeee)
 3. http://thehackernews.com/2017/04/swift-banking-hacking-tool.html
